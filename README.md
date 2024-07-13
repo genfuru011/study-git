@@ -8,3 +8,4 @@ basic git >>> basic python leaning...
 git is very!!!!!!!!!!!!!!!!!!!!!!! difficult.......:(
 
     my fave is  Kubo Shiori and Yuka kageyama 
+    I reccomend listening "sakurazaka" music 
